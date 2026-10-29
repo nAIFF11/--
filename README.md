@@ -2,7 +2,7 @@
 
 لاند 2022
 
-https://www.mediafire.com/file/tfwl7326553i5no/LC3002022-bksl.zip/file
+https://www.mediafire.com/file/mmqf1pp8rvudwde/LC300_2022_Ray.zip/file
 
 ماب الجراديه خويلد 
 
