@@ -1,12 +1,12 @@
 # --
 
-لاند 2022
+لاند 2022 خويلد (تنبيهه تلاقي الموتر اخر شي تحت)
 
 https://www.mediafire.com/file/mmqf1pp8rvudwde/LC300_2022_Ray.zip/file
 
 ماب الجراديه خويلد 
 
-https://www.mediafire.com/file/88oz07gjiaguvok/Al_Jaradiah.zip/file
+https://www.mediafire.com/file/roctraynspmg9v4/Al_Jaradiah+.zip/file
 
 
 يارس 2026
