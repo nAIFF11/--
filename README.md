@@ -6,7 +6,7 @@ https://www.mediafire.com/file/i8ghtok23ugqbn4/LC300_2022_BÙØ³Ù+2.zip/fi
 
 لكزسس بكسل 2017
 
-https://www.mediafire.com/file/hg6kxit0fhm2txt/LX570_2017_KHwylD_بكسل_بكسل_بكسل_بكسل_بكسل+2_بكسل.zip/file
+https://www.mediafire.com/file/u1b3skshbbqlyys/LX570_2017_KHwylD_بكسل_بكسل_بكسل_بكسل_بكسل+2_بكسل_بكسل.zip/file
 
 كامري2025
 
