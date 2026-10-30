@@ -1,13 +1,17 @@
 # --
 لاند بكسل 22
 
+https://www.mediafire.com/file/i8ghtok23ugqbn4/LC300_2022_BÙØ³Ù+2.zip/file
 
-https://www.mediafire.com/file/nhv6j4ld5dt2xbh/LC300_2022_BÙØ³Ù+2.zip/file
 
 لكزسس بكسل 2017
 
 https://www.mediafire.com/file/kxuhlyvj1v9m5w4/LX570_2017_KHwylD_بكسل.zip
 
+
+اكورد بكسل2017
+
+https://www.mediafire.com/file/el3bi2xmb6dfe3i/Accord_2017_KHwylD_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84.zip/file
 
 
 مستودعات الشفاء ماب
