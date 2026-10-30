@@ -6,7 +6,7 @@ https://www.mediafire.com/file/i8ghtok23ugqbn4/LC300_2022_BÙØ³Ù+2.zip/fi
 
 لكزسس بكسل 2017
 
-https://www.mediafire.com/file/kxuhlyvj1v9m5w4/LX570_2017_KHwylD_بكسل.zip
+https://www.mediafire.com/file/8rk2tzf9ah3f7cm/LX570_2017_KHwylD_بكسل_بكسل_بكسل_بكسل_بكسل.zip/file
 
 كامري2025
 
@@ -17,6 +17,11 @@ https://www.dropbox.com/scl/fi/m0ai1x6po3fp7s58xmyut/.zip?rlkey=o9dlq2dpbsy3knmf
 
 https://www.mediafire.com/file/el3bi2xmb6dfe3i/Accord_2017_KHwylD_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84.zip/file
 
+
+كدنزا بكسل
+
+
+https://www.mediafire.com/file/il6lmtq62bg7mgy/Cadnza_2017_KHwylD_بكسل_بكسل+2_بكسل_بكسل_بكسل_extracted.zip/file
 
 رابط ثاني الجراديه
 
