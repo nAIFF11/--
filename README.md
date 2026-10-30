@@ -18,6 +18,10 @@ https://www.dropbox.com/scl/fi/m0ai1x6po3fp7s58xmyut/.zip?rlkey=o9dlq2dpbsy3knmf
 https://www.mediafire.com/file/el3bi2xmb6dfe3i/Accord_2017_KHwylD_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84_%D8%A8%D9%83%D8%B3%D9%84.zip/file
 
 
+ماب الجرادية
+
+https://www.dropbox.com/scl/fi/gioueykdy97r6pmzq7evi/Al_Jaradiah_Riyadh.zip?rlkey=ch6o5x9dlxi9d6x2gqsq66hox&st=inkxlbu3&dl=1%5B/-
+
 مستودعات الشفاء ماب
 
 https://www.mediafire.com/file/atejunuditurns8/mstwad3at.zip/file
