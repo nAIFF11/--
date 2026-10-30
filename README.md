@@ -6,7 +6,7 @@ https://www.mediafire.com/file/nhv6j4ld5dt2xbh/LC300_2022_BÙØ³Ù+2.zip/fi
 
 لكزسس بكسل 2017
 
-https://www.mediafire.com/file/3wnmfxb5kwnsf2w/modified_by_pixel.zip/file
+https://www.mediafire.com/file/nhw3mhawuwhl6gw/modified_by_pixel.zip/file
 
 
 
