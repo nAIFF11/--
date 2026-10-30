@@ -8,6 +8,10 @@ https://www.mediafire.com/file/i8ghtok23ugqbn4/LC300_2022_BÙØ³Ù+2.zip/fi
 
 https://www.mediafire.com/file/kxuhlyvj1v9m5w4/LX570_2017_KHwylD_بكسل.zip
 
+كامري2025
+
+https://www.dropbox.com/scl/fi/m0ai1x6po3fp7s58xmyut/.zip?rlkey=o9dlq2dpbsy3knmf3wpi2frfz&st=t6kl1rey&dl=1
+
 
 اكورد بكسل2017
 
