@@ -21,7 +21,7 @@ https://www.mediafire.com/file/el3bi2xmb6dfe3i/Accord_2017_KHwylD_%D8%A8%D9%83%D
 كدنزا بكسل
 
 
-https://www.mediafire.com/file/il6lmtq62bg7mgy/Cadnza_2017_KHwylD_بكسل_بكسل+2_بكسل_بكسل_بكسل_extracted.zip/file
+https://www.mediafire.com/file/5yza1299ohcyx20/Cadnza_2017_KHwylD_بكسل_بكسل+2_بكسل_بكسل_بكسل_بكسل_بكسل_بكسل_بكسل.zip/file
 
 رابط ثاني الجراديه
 
