@@ -8,10 +8,22 @@ https://www.mediafire.com/file/i8ghtok23ugqbn4/LC300_2022_BÙØ³Ù+2.zip/fi
 
 https://www.mediafire.com/file/u1b3skshbbqlyys/LX570_2017_KHwylD_بكسل_بكسل_بكسل_بكسل_بكسل+2_بكسل_بكسل.zip/file
 
+
+كامري بكسل صورة عبدالله زميلي
+
+
+https://www.mediafire.com/file/vcn9qcltefn9qxv/2025+camry_بكسل_ستور_بكسل_ستور_بكسل_ستور_بكسل_ستور_بكسل_ستور_بكسل_ستور_بكسل_ستور.zip/file
+
+
+
 كامري2025
 
 https://www.dropbox.com/scl/fi/m0ai1x6po3fp7s58xmyut/.zip?rlkey=o9dlq2dpbsy3knmf3wpi2frfz&st=t6kl1rey&dl=1
 
+
+ازيرا21
+
+https://www.mediafire.com/file/8ylnf39r9tu2gfw/hyundai_azera_21-23-SH9.zip/file
 
 اكورد بكسل2017
 
