@@ -9,10 +9,10 @@ https://www.mediafire.com/file/i8ghtok23ugqbn4/LC300_2022_BÙØ³Ù+2.zip/fi
 https://www.mediafire.com/file/u1b3skshbbqlyys/LX570_2017_KHwylD_بكسل_بكسل_بكسل_بكسل_بكسل+2_بكسل_بكسل.zip/file
 
 
-كامري بكسل صورة عبدالله زميلي
+اكسنت بكسل 25
 
 
-https://www.mediafire.com/file/vcn9qcltefn9qxv/2025+camry_بكسل_ستور_بكسل_ستور_بكسل_ستور_بكسل_ستور_بكسل_ستور_بكسل_ستور_بكسل_ستور.zip/file
+https://www.mediafire.com/file/m9wabl8yuvkcdq9/accent_24-25_SH9_V2_بكسل_ستور_بكسل_ستور_بكسل_ستور_بكسل_ستور_بكسل_ستور.zip/file
 
 
 
