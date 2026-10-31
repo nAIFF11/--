@@ -14,6 +14,12 @@ https://www.mediafire.com/file/u1b3skshbbqlyys/LX570_2017_KHwylD_بكسل_بكس
 
 https://www.mediafire.com/file/m9wabl8yuvkcdq9/accent_24-25_SH9_V2_بكسل_ستور_بكسل_ستور_بكسل_ستور_بكسل_ستور_بكسل_ستور.zip/file
 
+كورلا 
+
+https://www.dropbox.com/scl/fi/l8dzd4lvgmzioui8fgj0i/Corolla_2024_NaF.zip?rlkey=0dgz9klzy9rwb297ges8kqxwv&st=cuy6vbyb&dl=1
+
+
+
 كورلا2020
 
 https://www.mediafire.com/file/gq9pmo6r48mk7k1/M7+corolla+2020.zip/file
