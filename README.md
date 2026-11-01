@@ -10,9 +10,9 @@ https://www.mediafire.com/file/u1b3skshbbqlyys/LX570_2017_KHwylD_بكسل_بكس
 
 
 
-كابرس بكسل 2013
+كامري بكسل2011 2008
 
-https://www.mediafire.com/file/p56wea2ks0vdpjy/DXTR_Caprice_2012_modland_بكسل_ستور+2.zip/file
+https://www.mediafire.com/file/qjyod1izdk0n0ma/M7_camry08_11_بكسل_ستور.zip/file
 
 
 
