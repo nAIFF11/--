@@ -15,9 +15,9 @@ https://www.mediafire.com/file/u1b3skshbbqlyys/LX570_2017_KHwylD_بكسل_بكس
 https://www.mediafire.com/file/ckgv73io3djvbzy/M7_camry08_11_بكسل_ستور_بكسل_ستور.zip/file
 
 
-التيما
+تورس بكسل 22
 
-https://www.mediafire.com/file/gq3xrojn4hi9y1u/L5FI_Altima_2010.zip/file
+https://www.mediafire.com/file/01m5wea3gsn3o11/taurus_sh9_sko0by_2022_بكسل_ستور.zip/file
 
 
 
