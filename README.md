@@ -14,9 +14,12 @@ https://www.mediafire.com/file/u1b3skshbbqlyys/LX570_2017_KHwylD_بكسل_بكس
 
 https://www.mediafire.com/file/ckgv73io3djvbzy/M7_camry08_11_بكسل_ستور_بكسل_ستور.zip/file
 
-كامري بكسل بعباره خربانه
 
-https://www.mediafire.com/file/0fgms8nlkivxyg7/M7_camry08_11_بكسل_ستور_بكسل_ستور.zip/file
+التيما
+
+https://www.mediafire.com/file/gq3xrojn4hi9y1u/L5FI_Altima_2010.zip/file
+
+
 
 
 
