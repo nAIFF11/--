@@ -12,7 +12,7 @@ https://www.mediafire.com/file/u1b3skshbbqlyys/LX570_2017_KHwylD_بكسل_بكس
 
 كامري بكسل2011 2008
 
-https://www.mediafire.com/file/qjyod1izdk0n0ma/M7_camry08_11_بكسل_ستور.zip/file
+https://www.mediafire.com/file/0fgms8nlkivxyg7/M7_camry08_11_بكسل_ستور_بكسل_ستور.zip/file
 
 
 
